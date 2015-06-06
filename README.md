@@ -13,6 +13,9 @@ The network is *TwoMajorCities* and the password is *buddy123*
 4. Cast to *MoFuckin Chromecast*
 5. Please turn it off when done.
 
+**Roof Access**
+Head up the stairs on floor and check it out.
+
 **Food in Fridge**
 Please don't eat it.
 
